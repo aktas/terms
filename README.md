@@ -4,7 +4,7 @@
 
 İnsanlık olarak hepimiz kusurlu canlılarız. Yaşamımız boyunca doğduğumuz andan itibaren hatalar yapıyor, hatalarımızdan ders çıkarıyor ve düşe kalka yolumuzu bulmaya çalışıyoruz. 
 Bu yaşam boyunca hayatımızda neler yaşarsak yaşayalım her bireyin kendine ait [temel hakları](https://www.ihd.org.tr/insan-haklari-evrensel-beyannames/) bulunuyor. 
-Bu temel haklar ile belirlizlikle dünya, bireyler için daha yaşanılır bir hale geliyor.
+Bu temel haklar ile belirlizlikle dolu dünya, bireyler için daha yaşanılır bir hale geliyor.
 Elbette bir bütün olan insanlık birlik ve dayanışma içerisinde ve bu haklara saygı duyulması ile kaos ortamının ortaya çıkmamasını sağlıyor, adalet kavramını yaşatıyor. 
 İnsanların kendi arasında adalet kavramını yaşatacak birer temsilci/görevli/yetkili seçmeleri toplumu daha yaşanabilir kılıyor. 
 Bu temsilciler ile insalık kendi arasında güveni sağlıyor ve insanlığın fıtratı gereği olmazsa olmaz 'sevgi' kavramı yaşatılıyor. 
