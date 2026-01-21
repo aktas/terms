@@ -1,6 +1,4 @@
 > Bu döküman, dökümanda ismi geçen şahsın yaşadığı olaylara istinaden oluşturduğu bir anlaşma metnidir.
->
-> 2 farklı anlaşma vardır ve ikiside birbiriyle bağlantılıdır. Her ikisininde dikkate alınması gerekmektedir. 
 
 ### Bildiri
 
